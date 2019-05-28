@@ -1,4 +1,4 @@
-# Liverpool Football Club (Last update:5/27/2019 9:19:05 PM)
+# Liverpool Football Club (Last update:5/28/2019 11:45:16 AM)
 📢 You'll Never Walk Alone！🔔
 
 
@@ -19,18 +19,22 @@
 
 **利物浦淘汰赛战绩：**
 
+**八分之一决赛Eighth-final：** 
 ![](https://pbs.twimg.com/media/DunXax3XcAAcUQ0.png)    
  
 1/8决赛首回合：主场0-0拜仁     
 1/8决赛次回合：客场3-1拜仁
 
+
+**四分之一决赛Quarter final：**
 ![](https://pbs.twimg.com/media/D1shm3AX0AI1K2c.jpg)
      
 1/4决赛首回合：主场2-0波尔图     
-1/4决赛次回合：客场4-1波尔图
+1/4决赛次回合：客场4-1波尔图   
 
+**半决赛Semi-final：**
 ![](https://pbs.twimg.com/media/D4YlIMPWsAAgJJk.jpg:large)
-    
+   
 半决赛首回合：客场0-3巴萨     
 半决赛次回合：主场4-0巴萨    
  
