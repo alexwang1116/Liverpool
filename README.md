@@ -1,8 +1,9 @@
-# Liverpool Football Club (Last update:5/27/2019 9:08:38 PM)
+# Liverpool Football Club (Last update:5/27/2019 9:19:05 PM)
 📢 You'll Never Walk Alone！🔔
 
 
 ### UEFA Champions League 2019 
+
 
 
 **利物浦小组赛战绩：**
@@ -33,6 +34,8 @@
 半决赛首回合：客场0-3巴萨     
 半决赛次回合：主场4-0巴萨    
  
-**决赛：**
+**决赛Final：**
+
+![](http://euprimetimefootball.com/wp-content/uploads/2019/05/2604197_w1.jpg)
 
 热刺 VS 利物浦
