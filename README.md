@@ -1,4 +1,4 @@
-# Liverpool Football Club (Last update:5/27/2019 12:15:34 PM)
+# Liverpool Football Club (Last update:5/27/2019 9:08:38 PM)
 📢 You'll Never Walk Alone！🔔
 
 
@@ -14,13 +14,22 @@
 第5轮：客场1-2巴黎     
 第6轮：主场1-0那不勒斯 
 
+利物浦小组赛6轮3胜3负积9分，以小组第二成绩晋级淘汰赛。
 
 **利物浦淘汰赛战绩：**
-     
+
+![](https://pbs.twimg.com/media/DunXax3XcAAcUQ0.png)    
+ 
 1/8决赛首回合：主场0-0拜仁     
-1/8决赛次回合：客场3-1拜仁     
+1/8决赛次回合：客场3-1拜仁
+
+![](https://pbs.twimg.com/media/D1shm3AX0AI1K2c.jpg)
+     
 1/4决赛首回合：主场2-0波尔图     
-1/4决赛次回合：客场4-1波尔图    
+1/4决赛次回合：客场4-1波尔图
+
+![](https://pbs.twimg.com/media/D4YlIMPWsAAgJJk.jpg:large)
+    
 半决赛首回合：客场0-3巴萨     
 半决赛次回合：主场4-0巴萨    
  
