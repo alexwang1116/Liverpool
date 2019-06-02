@@ -1,4 +1,4 @@
-# Liverpool Football Club (Last update:5/28/2019 11:45:16 AM)
+# Liverpool Football Club (Last update:6/1/2019 8:35:43 PM)
 📢 You'll Never Walk Alone！🔔
 
 
@@ -42,4 +42,6 @@
 
 ![](http://euprimetimefootball.com/wp-content/uploads/2019/05/2604197_w1.jpg)
 
-热刺 VS 利物浦
+热刺 0：2 利物浦
+
+![](http://n.sinaimg.cn/sports/transform/361/w650h511/20190602/a485-hxvzhtf4220300.jpg)
