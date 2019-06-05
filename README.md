@@ -1,4 +1,4 @@
-# Liverpool Football Club (Last update:6/1/2019 8:35:43 PM)
+# Liverpool Football Club (Last update:6/4/2019 11:47:42 PM)
 📢 You'll Never Walk Alone！🔔
 
 
@@ -45,3 +45,10 @@
 热刺 0：2 利物浦
 
 ![](http://n.sinaimg.cn/sports/transform/361/w650h511/20190602/a485-hxvzhtf4220300.jpg)
+
+
+荣誉臂章
+![](http://5b0988e595225.cdn.sohucs.com/images/20190603/0b64e43e7d3c4b3c9d0c663453c2c1f9.png)
+
+冠军得主章
+![](http://5b0988e595225.cdn.sohucs.com/images/20190603/a1924efc0a844c7398ba6279bfc0640d.png)
